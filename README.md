@@ -1,0 +1,2 @@
+# Egyenletmegold-s
+frwjmnbhkgvh
